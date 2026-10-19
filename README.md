@@ -23,7 +23,7 @@
 ---
 
  Connect with Me
-- **Email:** kkkkkk12@gmail.com
+- **Email:aslamcomrade46@gmail.com
 - **GitHub:** [Aslam Comrade Profile](https://github.com)
 
 ---
